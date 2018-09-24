@@ -1,4 +1,4 @@
-# <p align="center" style="color:#cb3349" >📡 سـورس الـزعـيـم 📡
+# <p align="center" style="color:#cb3349" >📡 سـورس لايتنك 📡
 
 # <p align="center" style="color: #14635c;" > TH3BOSS حصريا من قناة  ⭐️
 
